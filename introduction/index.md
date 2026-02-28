@@ -4,3 +4,6 @@
 
 ## Introduction
 
+> We must free ourselves of the hope that the sea will ever rest.  
+> We must learn to sail in high winds.  
+> **Aristotle Onassis**
