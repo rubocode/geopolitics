@@ -1,4 +1,4 @@
-> [home](/governance)
+> [home](/strategy)
 > &bull; Work in progress...
 
 ![banner](/geopolitics/photos/banner.png)
